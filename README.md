@@ -84,7 +84,7 @@ Coming soon 🏃‍♀️🏃‍♀️
 
 ## 📫 Connect With Me
 
-- 💼 LinkedIn: https://www.linkedin.com/in/sneha-timsina-12b13b283/
+- 💼 LinkedIn: https://www.linkedin.com/in/sneha-timsina/ 
 - 📧 Email: timsi23s@mtholyoke.edu
 - 🌐 Portfolio: Coming Soon
 
